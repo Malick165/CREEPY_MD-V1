@@ -1,8 +1,8 @@
-//created by Danny
-//wa.me/255697608274
+//created by Malick Creator 
+//wa.me/255788251309
 //Deploy and enjoy
-//Credits (Creepy technology)
-//Follow our channel https://whatsapp.com/channel/0029VacQFw65Ui2gGv0Kwk1r
+//Credits (Malick technology)
+//Follow our channel https://whatsapp.com/channel/0029VacQFw6i2gGv0Kwk1r
 
 
 
